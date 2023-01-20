@@ -19,7 +19,7 @@ I look forward to your thoughts
 
 يمكنك الوصول إلي
 
-جيت هاب @ ockba-a
+جيت هب @ ockba-a
 الايميل ockba.a@gmail.com
 
 أنا أتطلع الي أفكارك
